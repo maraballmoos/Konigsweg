@@ -1,1 +1,1 @@
-# der-Konigsweg
+# Konigsweg
